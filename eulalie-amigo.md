@@ -1,7 +1,7 @@
-Blablablabalbla.
+Blablablabalbla !
+Balbalbla...
+BlaBlablablab...
 grrrrrrrrrr
-Balbalbla.
-Blablablablab.
+Blablablab
 
 Dois-je oublier son père à mes pieds renversé,
-
